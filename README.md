@@ -1,4 +1,4 @@
 # Teknologi Mobile
 ## Biodata
-NIM: 2100016008  
-Nama: Muhammad Abduh  
+NIM: 2111016049  
+Nama: Thoriqin Maulana I  
